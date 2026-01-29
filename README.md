@@ -1,1 +1,3 @@
 # Adalah-pokonya
+
+https://prod.liveshare.vsengsaas.visualstudio.com/join?5E8337DAD3FD68364627FAC142DDC9110487
